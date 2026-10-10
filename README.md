@@ -9,3 +9,5 @@ Link  gg form 2: https://docs.google.com/forms/d/e/1FAIpQLScOa7boVxZx5jpwC_9_6jw
 <i> BÀI 2: </i>
 
 Link gg sites: https://sites.google.com/student.ctu.edu.vn/gioi-thieu-?usp=sharing
+
+<strong> BÀI 3: <strong> 
