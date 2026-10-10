@@ -13,3 +13,7 @@ Link gg sites: https://sites.google.com/student.ctu.edu.vn/gioi-thieu-?usp=shari
 <strong><i> BÀI 3: </i></strong> 
 
 Link gg calendar: https://calendar.google.com/calendar/u/0/r
+
+<strong><i> BÀI 4: </i></strong> 
+
+Link không gian trello: https://trello.com/b/cwF7tat1/khong-gian-lam-bai-lab07
